@@ -1,0 +1,1 @@
+https://insideearth2150.github.io/wiki/
